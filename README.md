@@ -27,6 +27,8 @@ C++ & Data Structures · Advanced SQL · Power BI & DAX · Design Systems · Fro
 ## Let's Connect
 
 [LinkedIn](www.linkedin.com/in/
-sonikumari00) · [E-mail].(sonikumari68474@gmail.com) · [Portfolio](YOUR_PORTFOLIO_URL)
+sonikumari00) 
+· [E-mail].(sonikumari68474@gmail.com) 
+· [Portfolio](YOUR_PORTFOLIO_URL)
 
 
